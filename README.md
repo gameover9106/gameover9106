@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @gameover9106
+- 🧙🏻 Can call me Alencar
+- 👀 I’m interested in all
+- 🌱 I’m brazilian
+- 💞️ I’m looking to learn
+- 📫 How to reach me in gmail gabriel10delta@gmail.com
